@@ -1,1 +1,2 @@
 1.6 P1 Magic square
+what£¿£¿£¿£¿
